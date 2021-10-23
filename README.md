@@ -8,6 +8,10 @@ go to GAMES then go to NDS THERE ARE THE GAMES
 DSI LINK https://www.youtube.com/watch?v=wMVw6PSbbLk&t=281s
 -----------------------------------------------------------------------------------------------------------------------------
 YOU DO YOU NEED YOUR DSI OR 3DS TO homebrew THE DSI OR 3DS
+-----------------------------------------------------------------
+where are the games. now it is in this link https://www.romsgames.net/roms/nintendo-ds/
+-----------------------------------------------------------------
+![download](https://user-images.githubusercontent.com/85066327/138547338-b30133cf-492c-4b9e-acf6-0a19dca7af79.png)
 -----------------------------------------------------------------------------------------------------------------------------
-where are the games now it is in this link https://www.romsgames.net/roms/nintendo-ds/
+![Box Art](https://user-images.githubusercontent.com/85066327/138547433-929b48dc-cd0f-4e97-8ce5-ddac15fded5e.png)
 -----------------------------------------------------------------------------------------------------------------------------
