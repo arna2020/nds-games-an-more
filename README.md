@@ -1,16 +1,16 @@
 # nds-games
 -----------------------------------------------------------------------------------------------------------------------------
-3DS LINK https://www.youtube.com/watch?v=Szc58v2I-DA&t=53s
+3DS LINK: https://www.youtube.com/watch?v=Szc58v2I-DA&t=53s
 -----------------------------------------------------------------------------------------------------------------------------
-3DS LINK 2 https://www.youtube.com/watch?v=sclWv9iB0e0&t=285s
+3DS LINK: 2 https://www.youtube.com/watch?v=sclWv9iB0e0&t=285s
 -----------------------------------------------------------------------------------------------------------------------------
-DSI LINK https://www.youtube.com/watch?v=wMVw6PSbbLk&t=281s
+DSI LINK: https://www.youtube.com/watch?v=wMVw6PSbbLk&t=281s
 -----------------------------------------------------------------------------------------------------------------------------
 YOU DO YOU NEED YOUR DSI OR 3DS TO homebrew THE DSI OR 3DS
 -----------------------------------------------------------------------------------------------------------------------------
 where are the games. now it is in this link https://www.romsgames.net/roms/nintendo-ds/
 -----------------------------------------------------------------------------------------------------------------------------
-3ds BACKUP the games link https://www.youtube.com/watch?v=LsKcPwoF8BA&t=137s
+3ds BACKUP games link https://www.youtube.com/watch?v=LsKcPwoF8BA&t=137s
 -----------------------------------------------------------------------------------------------------------------------------
 ![download](https://user-images.githubusercontent.com/85066327/138547338-b30133cf-492c-4b9e-acf6-0a19dca7af79.png)
 -----------------------------------------------------------------------------------------------------------------------------
